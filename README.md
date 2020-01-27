@@ -1,2 +1,2 @@
 # archive
-General archive for all past courses/years
+Please do not edit this archive! Any malicious actions will be reverted and announced!
